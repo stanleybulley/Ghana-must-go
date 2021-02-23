@@ -1,0 +1,1 @@
+# Ghana-must-go
